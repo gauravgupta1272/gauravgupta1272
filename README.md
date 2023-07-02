@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **gauravgupta1272@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1DcO9Dvm1Vs0j1MkFMBDVtiegIzLLvhyX/view?usp=sharing
+- 📄 [Resume](https://drive.google.com/file/d/1_SzwvZgSzYuXs2ogu-yaDx55WdjzgSs9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
